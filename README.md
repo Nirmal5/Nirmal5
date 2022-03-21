@@ -1,6 +1,6 @@
 # Hey 👋, This is Nirmal Patel
 ### About me 🤓
-I am 21 year old handsome & smart boy.😉
+I am young, handsome & smart boy.😉
 
 Goal: Explore World as much as possible.(Traveling and Learning)
 
